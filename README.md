@@ -1,4 +1,4 @@
-👋 Florian, Apprentice @TelecomNancy
+👋 Florian, Computer Science Engineer specialised in Software Development
 
 👀 IT Enthusiast
 
